@@ -32,7 +32,7 @@
              <br>
               $\color{#2f8e6f}{\textsf{ 　ೃ   theу ⠀  theм  ꒱  18y ᤴ}}$<br>
               <br>
-               $\color{#aee3cf}{\textsf{ Isfp }}$ $\color{#226149}{\textsf{ ELVF }}$  $\color{#aee3cf}{\textsf{ Sx4Sp78 }}$ $\color{#226149}{\textsf{ Phleg-Sang }}$  $\color{#aee3cf}{\textsf{ RLUEN }}$<br>
+               $\color{#aee3cf}{\textsf{ Isfp }}$ $\color{#226149}{\textsf{ ELVF }}$  $\color{#aee3cf}{\textsf{ Sp/sx478 4w3 }}$ $\color{#226149}{\textsf{ Phleg-Sang }}$  $\color{#aee3cf}{\textsf{ RLUEN }}$<br>
                <br>
       
    </details>
