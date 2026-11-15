@@ -32,7 +32,11 @@
              <br>
               $\color{#2f8e6f}{\textsf{ 　ೃ   theу ⠀  theм  ꒱  18y ᤴ}}$<br>
               <br>
-               $\color{#aee3cf}{\textsf{ Isfp }}$ $\color{#226149}{\textsf{ EFVL }}$  $\color{#aee3cf}{\textsf{ Sp/sx478 4w3 }}$ <br>$\color{#226149}{\textsf{ Phleg-Sang }}$  $\color{#aee3cf}{\textsf{ r[L]u/E/n }}$<br> $\color{#226149}{\textsf{ /M/OhW[D]es }}$  $\color{#aee3cf}{\textsf{ <3 }}$
+              𓏼˚̣̣̣ 𝄞.˳˳ $\color{#aee3cf}{\textsf{ Isfp }}$  ✦
+ $\color{#226149}{\textsf{ EFVL }}$  ✦ 
+ $\color{#aee3cf}{\textsf{ Sp/sx478 4w3 }}$ 𓏼˚̣̣̣ <br> ꒱𓈒◟ ͜ ̣̣̥ᣟ݂ ׁׅ֒֯ $\color{#226149}{\textsf{ Phleg-Sang }}$  ✦ 
+ $\color{#aee3cf}{\textsf{ r[L]u/E/n }}$ ✦ $\color{#226149}{\textsf{ /M/OhW[D]es }}$  ✦ 
+ $\color{#aee3cf}{\textsf{ Fi>Ne>Si>Te }}$ ݄ ֺ♡ ꒱꒱
                <br>
   
 
