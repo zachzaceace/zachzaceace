@@ -40,7 +40,7 @@
   $\color{#226149}{\textsf{ 68 - Openness }}$ ✦  $\color{#aee3cf}{\textsf{ 30 - Conscientiousness
  }}$  ✦ $\color{#226149}{\textsf{ 25 - Extraversion }}$ ✦ $\color{#aee3cf}{\textsf{ 35 - Agreeableness
  }}$ ✦ $\color{#226149}{\textsf{ 95 - Neuroticism }}$ <br>
- 𓏼˚̣̣̣ 𝄞.˳˳.⋅ $\color{#aee3cf}{\textsf{ SEI }}$ ✦ $\color{#226149}{\textsf{ Neutral Evil }}$ ✦  $\color{#aee3cf}{\textsf{ Disorganized Attachment }}$
+ 𓏼˚̣̣̣ 𝄞.˳˳.⋅ $\color{#aee3cf}{\textsf{ SEI }}$ ✦ $\color{#226149}{\textsf{ Neutral Evil }}$ ✦  $\color{#aee3cf}{\textsf{ Disorganized Attachment }}$ ✦ $\color{#226149}{\textsf{ IF(S)  }}$ ✦
                <br>
   
 
