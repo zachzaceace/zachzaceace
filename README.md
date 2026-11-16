@@ -39,7 +39,8 @@
  $\color{#aee3cf}{\textsf{ Fi>Ne>Si>Te }}$ ݄  ֺ♡ ꒱꒱ <br>
   $\color{#226149}{\textsf{ 68 - Openness }}$ ✦  $\color{#aee3cf}{\textsf{ 30 - Conscientiousness
  }}$  ✦ $\color{#226149}{\textsf{ 25 - Extraversion }}$ ✦ $\color{#aee3cf}{\textsf{ 35 - Agreeableness
- }}$ ✦ $\color{#226149}{\textsf{ 95 - Neuroticism }}$
+ }}$ ✦ $\color{#226149}{\textsf{ 95 - Neuroticism }}$ <br>
+ 𓏼˚̣̣̣ 𝄞.˳˳.⋅ $\color{#aee3cf}{\textsf{ SEI }}$ ✦ 
                <br>
   
 
