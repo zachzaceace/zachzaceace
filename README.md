@@ -34,7 +34,7 @@
               <br>
               𓏼˚̣̣̣ 𝄞.˳˳ $\color{#aee3cf}{\textsf{ Isfp }}$  ✦
  $\color{#226149}{\textsf{ EFVL }}$  ✦ 
- $\color{#aee3cf}{\textsf{ Sp/sx478 4w3 }}$ 𓏼˚̣̣̣ <br> ꒱𓈒◟ ͜ ̣̣̥ᣟ݂ ׁׅ֒֯ $\color{#226149}{\textsf{ Phleg-Sang }}$  ✦ 
+ $\color{#aee3cf}{\textsf{ sx/sp468 4w3 }}$ 𓏼˚̣̣̣ <br> ꒱𓈒◟ ͜ ̣̣̥ᣟ݂ ׁׅ֒֯ $\color{#226149}{\textsf{ Phleg-Sang }}$  ✦ 
  $\color{#aee3cf}{\textsf{ r[L]U/E/n }}$ ✦ $\color{#226149}{\textsf{ /M/OhW[D]es }}$  ✦ 
  $\color{#aee3cf}{\textsf{ Fi>Ne>Si>Te }}$ ݄  ֺ♡ ꒱꒱ <br>
   $\color{#226149}{\textsf{ 68 - Openness }}$ ✦  $\color{#aee3cf}{\textsf{ 30 - Conscientiousness
