@@ -32,6 +32,9 @@
              <br>
               $\color{#2f8e6f}{\textsf{ 　ೃ   theу ⠀  theм  ꒱  18y ᤴ}}$<br>
               <br>
+              <details>
+              <summary> $\color{#2f8e6f}{\textsf{ Personality Type !}}$</summary>
+              <br>
               𓏼˚̣̣̣ 𝄞.˳˳ $\color{#aee3cf}{\textsf{ Isfp }}$  ✦
  $\color{#226149}{\textsf{ EFVL }}$  ✦ 
  $\color{#aee3cf}{\textsf{ sx/sp468 4w3 }}$ 𓏼˚̣̣̣ <br> ꒱𓈒◟ ͜ ̣̣̥ᣟ݂ ׁׅ֒֯ $\color{#226149}{\textsf{ Phleg-Sang }}$  ✦ 
