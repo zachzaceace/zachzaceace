@@ -48,6 +48,7 @@
   
 
    </details>
+   </details>
   <img src="https://files.catbox.moe/batced.webp" align="center" style="width: 10%; height: 10%;"> <img src="https://files.catbox.moe/w3ozh5.webp" align="center" style="width: 10%; height: 10%;"> <img src="https://files.catbox.moe/rjq1ag.webp" align="center" style="width: 10%; height: 10%;">
       </td>
     </tr>
